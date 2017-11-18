@@ -12,7 +12,7 @@
 Have you ever looked at someone's shirt and wondered, "What would that shirt sound like?". Of course you have.
 Well now you can with this product. By simply hovering this device over someone's shirt or any article of clothing, you too can listen to the hidden melodies in our clothing.
 
-We may not realize it but people often associate certain colors with specfic feelings as numerous studies have shown. It's also no secret that music has incredible impact on our current state of emotions as well.
+We may not realize it but people often associate certain colors with specific feelings as numerous studies have shown. It's also no secret that music has incredible impact on our current state of emotions as well.
 So why not combine these two factors to enhance the vibes they give off?
 
 The colors and songs played will target emitting various emotions such as:
